@@ -1,0 +1,1 @@
+# Vibe-Coding-Templates-and-Rules
